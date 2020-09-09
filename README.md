@@ -1,3 +1,3 @@
 # aprogr
-kaushik vaghamar
+kaushik
 HARESH
